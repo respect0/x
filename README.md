@@ -8,3 +8,5 @@ Neler ekleyebileceğimide söyleyin ekleyeyim discord : respect 🎄#0001 (91966
 
 ![image](https://user-images.githubusercontent.com/79569914/151442126-8ff37484-01ad-4b5a-8195-7027799586e8.png)
 
+![image](https://user-images.githubusercontent.com/79569914/151966206-ea37ee3f-c5c2-4791-8814-9c2c9f05a201.png)
+
