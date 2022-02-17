@@ -1,5 +1,7 @@
 # webpanelli-guard-v13
 
+**Botu bitirdim ama star nerede acaba?** Star geldiğinde botu paylaşacağım.
+
 **100 star**'a paylaşırım şuan hala geliştiriyorum. Ne ben patlarım ne de siz patlarsınız merak etmeyin 😋
 
 Neler ekleyebileceğimide söyleyin ekleyeyim discord : respect 🎄#0001 (919663047923101736)
