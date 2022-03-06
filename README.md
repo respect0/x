@@ -8,3 +8,4 @@ Neler ekleyebileceğimide söyleyin ekleyeyim discord : respect 🎄#0001 (91966
 
 ![image](https://user-images.githubusercontent.com/79569914/151966206-ea37ee3f-c5c2-4791-8814-9c2c9f05a201.png)
 
+![](https://komarev.com/ghpvc/?username=respect0&color=dc143c)
