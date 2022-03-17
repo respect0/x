@@ -2,7 +2,7 @@
 
 **Botu bitirdim ama star nerede acaba?** Star geldiğinde botu paylaşacağım.
 
-**150** **star'a** paylaşırım şuan hala geliştiriyorum. Ne ben patlarım ne de siz patlarsınız merak etmeyin 😋
+**150** **star'a** paylaşırım. Ne ben patlarım ne de siz patlarsınız merak etmeyin 😋
 
 Baktım star gelmio 100den 150'e
 
