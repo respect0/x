@@ -1,1 +1,0 @@
-cok yakinda canm
